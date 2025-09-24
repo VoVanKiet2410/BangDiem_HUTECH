@@ -1,1 +1,0 @@
-# BangDiem_HUTECH
